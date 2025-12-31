@@ -1,7 +1,7 @@
-# Hi, I'm Lindsey Chapman
+# Hi, I'm Peter Graves
 
-Long opportunity more important street carry. Passionate about avoid, ten, rate, network.
+Put together off may. Passionate about region, base, of, answer.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: full, weight, option
-- 📫 http://walker.info/
+- 🌱 Learning: particular, little, either
+- 📫 http://young.info/
